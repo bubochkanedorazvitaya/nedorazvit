@@ -1,2 +1,0 @@
-# nedorazvit
-loll
